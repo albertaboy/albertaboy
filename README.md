@@ -2,7 +2,7 @@
 
 ### Howdy 👋
 
-I'm Kieran. I help run customer support operations for [Shop](https://shop.app/). I'm also starting a [transparent rainwear brand](https://heycloaked.com/) 💧
+I'm Kieran, a product manager at [Shop](https://shop.app/). I'm also starting a [transparent rainwear brand](https://heycloaked.com/)💧
 
 ### Wanna chat? ☕️
 
