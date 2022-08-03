@@ -2,9 +2,9 @@
 
 ### Howdy 👋
 
-I'm Kieran, a product manager at [Shop](https://shop.app/). I'm also obsessed with 🎾 and I failed to start a [transparent rainwear brand](https://heycloaked.com/)💧
+I'm Kieran, a product manager at [gm shop](https://www.shopify.ca/tokengated-commerce). I'm also obsessed with 🎾 and I failed to start a [transparent rainwear brand](https://heycloaked.com/)💧
 
 ### Wanna chat? ☕️
 
 * 💬 Ping me on Slack if we work together lol 
-* ＠ me on [Twitter](https://twitter.com/albertaboy) where I hang out too much 
+* ＠ me on [Twitter](https://twitter.com/albertaboy) 
